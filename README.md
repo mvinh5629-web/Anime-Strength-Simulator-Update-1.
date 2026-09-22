@@ -1,0 +1,1 @@
+# Anime-Strength-Simulator-Update-1.
